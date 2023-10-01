@@ -21,5 +21,14 @@ Activity 3:
 
 ![image](https://github.com/krishnapatel17/krishnapatel17.github.io/assets/74744575/20f04411-c0b5-4ea4-a850-fef1ab91f70b)
 
+Activity 4:
+![image](https://github.com/krishnapatel17/krishnapatel17.github.io/assets/74744575/52400538-00ed-4a1a-825c-01ea1e6138ec)
+
+![image](https://github.com/krishnapatel17/krishnapatel17.github.io/assets/74744575/5c71a0b9-1f41-4738-aa69-c1093f41a713)
+
+![image](https://github.com/krishnapatel17/krishnapatel17.github.io/assets/74744575/1e411930-8622-4a4e-b5ec-abe23271eba2)
+
+
+
 
 
